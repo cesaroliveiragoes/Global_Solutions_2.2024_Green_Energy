@@ -1,0 +1,1 @@
+# Global_Solutions_2.2024_Green_Energy
